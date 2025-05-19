@@ -1,0 +1,1 @@
+# UMKM-Buah-Segar-Bengkulu-Gint
